@@ -1,4 +1,4 @@
-[**Công ty chúng tôi chuyên in ấn, sản xuất bao bì: in thùng carton 3,5,7 lớp in thùng carton,in thùng carton in offset,**](http://inantuigiay.vn/in-thung-carton/),.. 
+Công ty chúng tôi chuyên in ấn, sản xuất bao bì: [**in thùng carton **](http://inantuigiay.vn/in-thung-carton/) 3,5,7 lớp ,[**in thùng carton **](http://inantuigiay.vn/in-thung-carton/),in thùng carton in offset,,.. 
 cho các cửa hàng, shops, siêu thị, các doanh nghiệp trong và ngoài nước. Cty có nhà máy sản xuất tại Tp. HCM.
 Sản phẩm bao bì túi giấy, túi xách giấy,.. của chúng tôi được các công ty, doanh nghiệp trên khắp cả Nước biết đến trên 10 năm nay. chúng tôi luôn không ngừng cải tiến, đầu tư thiết bị hiện đại nhằm thỏa mãn đầy đủ chính xác, kịp thời nhu cầu ngày càng cao của khách hàng nội địa và đặc biệt là thị trường xuất khẩu.
     CÔNG TY IN BÌNH MINH PAT
