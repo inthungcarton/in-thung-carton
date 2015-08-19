@@ -7,3 +7,4 @@ Sản phẩm bao bì túi giấy, túi xách giấy,.. của chúng tôi đượ
 Phòng kinh doanh bao bì: (08 )3754 7951 ~ 52 – 0916 66 08 53
 Phòng in hóa đơn: (08 )3754 7953 – 0918000768
 Email : inantuigiay@gmail.com
+http://inantuigiay.vn
